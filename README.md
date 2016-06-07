@@ -1,1 +1,1 @@
-README�ł�
+﻿READMEです
